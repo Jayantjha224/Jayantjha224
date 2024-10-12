@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jayant Jha
-- 👀 I’m interested in Analog Electronics
+- 👀 I’m interested in Blockchain Technology and Web3
 
 
 <!---
